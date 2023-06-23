@@ -1,0 +1,1 @@
+“Where are we?” the old man said.“In a dark wood.”“Who are you?” said the old man.“Just … a brother,” said the young man.“Stop,” the old man said. “Let me look at you.”“It is dark.”“And I am blind. For me it is always dark. I can see with my hands, if you will allow me.”“Yes.”The old man felt first the young man’s wavy hair.“Please, describe the color of your hair.”
